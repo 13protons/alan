@@ -1,2 +1,2 @@
 # alan
-Lots of creativit
+Lots of creativity
